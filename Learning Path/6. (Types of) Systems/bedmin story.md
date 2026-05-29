@@ -1,0 +1,3 @@
+- bedmin is perfect system
+- systems require innovation
+- therefore, can't just copy, need to re-innovate. System creation is not easy.

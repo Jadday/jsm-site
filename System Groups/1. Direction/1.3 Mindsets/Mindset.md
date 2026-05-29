@@ -1,0 +1,3 @@
+Our mindset is the way we approach problems and situations. While values are more likely to stay put, our mindset is meant to grow and change regularly. When you want something to change in your life, your mindset can take on a new approach, from which knowledge and then skills can follow.
+
+While aspirations and values are unique, the mindset doesn't have to be. Some mindsets are more effective than others.

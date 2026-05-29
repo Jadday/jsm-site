@@ -1,0 +1,1 @@
+p k t t r = packetter = processes, knowledge, tools, trackers, resources

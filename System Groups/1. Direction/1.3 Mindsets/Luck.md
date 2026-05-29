@@ -1,0 +1,5 @@
+Luck is the random chance of whether things happen in your favour or not. Luck can manifest at each layer. You can get lucky or unlucky with ideas, activities and people alike.
+
+Most of the time, luck can't be controlled. However, the way it affects your response can be controlled. If you fully capitalise on the times when you get lucky, it won't matter so much to have some bad luck later.
+
+One analogy is to think about Mario Kart, where each item you get is randomised. You may be settling for a decent placement, but suddenly get a lucky item. You might have to quickly and drastically change your route in order to make the most of it, and it might take more effort than just lazily using the item to gain a couple spots. However, doing it well could put you so far ahead that getting hit by an unlucky blue shell at the finish line doesn't even stop you from getting first place.

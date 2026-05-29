@@ -1,0 +1,5 @@
+It's built into human nature to want friends and relationships. And these things are very healthy for wellbeing, memories and even productivity and learning. However, due to the unpredictable nature of people, these things can't just be optimised like systems and habits can. Trying to force anything only makes it harder.
+
+Rather than treating social goals like work and hobby goals, they should be separate. You're hoping for meaningful interactions with people that you align with, but you can't control who you meet, what their personalities are, what they say to you, how they feel about you, etc. However, what you can control are the conditions you put yourself in to increase the chance of meaningful interactions, and the way you respond to people in those conditions.
+
+As a simple example, signing up to clubs for your hobbies is a really fast way to meet people who enjoy the same thing, and to learn from them. You can be going there primarily to learn, but you can ask for a contact from people who you admire there. This sort of low-pressure, enjoyable environment is a perfect place to start strong connections.

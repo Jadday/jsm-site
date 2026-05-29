@@ -1,0 +1,11 @@
+I feel like everything has been cluttered for several days now. I'm not organising properly, my task list at the end of the day still has a bunch of stuff that I'll probably move to tomorrow and so on, urgent tasks in my next actions aren't being done, and I'm not following good habits or full routines.
+
+I need a reset.
+
+I'm trying to work within a broken system. Don't adapt to it. Go beyond it.
+
+Tomorrow, I want nothing in my super productivity except the morning routine. And I need to make sure I start with the app in the morning. Keep it open on your phone when you sleep so it's the first thing you see in the morning. Once the morning routine is done, on the bus (or wherever), you can start pulling things that need to be done. Work offensively, not defensively. Don't be constantly chasing things that are moving away. Reframe it so that you're in control. Pull things in as you're about to do them. That's the habit you want to build. Being good at pulling in the right tasks at the right times, and doing a good quantity of them.
+
+So, how to reset? Brutally reduce scope. Put yourself back in control. It's more responsibility for sure, as you now have to remember things that were 'scheduled' before. But going back to square one was exactly what you wanted, so you can do it better this time. 
+
+To do this right now, delete and forget any tasks you currently have, and replace them with a directive to do the minimum possible work to get you to a point where you can take on some work. If it's nighttime, this means going to bed, ignoring any mess or unfinished business. If it's the day, this means escaping the current situation and forgetting any other plans you had. This is meant to be brutal. It's meant to be easy too. Your todo list is gone - you don't have a task to do these things, so do the minimum work possible. You're not getting paid for this. Once you get to a spot where you have capacity and your task list is empty, then you can start pulling in the most vital things, one at a time, adding subtasks to make each one feel more manageable. That is a reset.

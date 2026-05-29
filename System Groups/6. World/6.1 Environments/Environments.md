@@ -1,0 +1,5 @@
+Our environments are the main places we spend time in our lives. Different rooms in the house, places of work, supermarkets, and many others.
+
+This introduces environmental habits, which are linked to cues around us (sometimes subconsciously). These can affect how we interact with the environment, and sometimes even our mood.
+
+A good place to start is considering your relationships to the objects in your environment, and how you feel when you notice them. For example, you might hear your phone buzz and feel the need to check it. Or you might look at a dirty plate and know that it should be washed up, but feel unbothered to do so. Alternatively, you might see your art book and pencil laid out, and feel a desire to do a few sketches. From this you can start to architect the environment to your advantage.

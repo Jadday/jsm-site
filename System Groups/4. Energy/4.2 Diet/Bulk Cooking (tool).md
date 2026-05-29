@@ -1,0 +1,7 @@
+That wasn't a bad experience per se. I ate a really good meal in the end. I learned that skyr sauce isn't exactly great - my previous delicious sauce led me to believe they're simple, I now know I actually just got lucky. I learned that my insane quantity of vegetables was actually feasible to cook all at once, and it made 4+ portions, double what I was expecting, so that's 3 more meals that are made basically trivial as I just have to prepare the protein and carbs.
+
+None of that was a mistake. My mistake was doing this when I felt starving. That was a huge amount of friction I was dealing with, and I don't want to be in that situation again. The way this will actually work out is if I can eat meals, when I get hungry, that make me feel full.
+
+So, to eat when I'm hungry (rather than cooking when I'm hungry), I need to do the bulk cooking like this when I'm not hungry. A weekend morning or afternoon is probably best. For example, I could start a chilli, then put that veg traybake in, and finally cook a batch of brown rice or something. That would give me so much ammunition for lunches and dinners for the whole week. And I feel like, on the days I don't use the veg, is when I would do something like sweet potato that takes a while but is easy.
+
+And then, to feel full after the meals, I need to make sure they contain a lot of fibre. I feel pretty full after this meal with the veg, so hopefully that is the case.

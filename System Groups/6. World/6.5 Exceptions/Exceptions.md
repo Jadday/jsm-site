@@ -1,0 +1,5 @@
+Although the outside world is less predictable and focused, it has much more potential for fun and happiness. This introduces a new type of break in which many of the typical rules are broken: exceptions.
+
+Exceptions are the parties, food deliveries, late nights and other unproductive things that can feel amazing and create lifelong memories when used in moderation. They make all of the improvement and optimisation worth it.
+
+Exceptions should not really be controlled. They're supposed to be fun and exciting, so let them be. However, you can plan them and mitigate their downsides to make them more sustainable. This can include planning timings, making sure a good amount of work is done in advance, doing household tasks proactively, planning what meals you'll have, what time you'll sleep, etc.
