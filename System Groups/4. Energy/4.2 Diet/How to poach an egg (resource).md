@@ -1,1 +1,0 @@
-https://www.google.com/amp/s/www.egginfo.co.uk/recipes/perfectly-poached-eggs%3famp

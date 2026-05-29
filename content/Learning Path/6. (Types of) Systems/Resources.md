@@ -1,0 +1,5 @@
+An advantage of living in a world where many intelligent people have lived before is the ability to use their work for your own benefit. During your life, you too can put your work out there for yourself and others to use.
+
+Resources are systems that aren't made specifically for you, and are instead widely available to assist with some aspect of life. This can include books, online courses, academic papers, tutorials, physical items, and many more. Over time, searching for and collecting these resources can prove incredibly useful, as they can explain concepts clearly and save lots of time.
+
+Papers are an especially interesting resource, as they're less commonly used outside of academic studies, but can provide detailed explanations of complex topics. Sometimes, when approaching a complicated problem in any field, searching for relevant papers can reveal that someone else has already done most of the work for you.

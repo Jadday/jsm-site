@@ -1,0 +1,1 @@
+Values are unique traits that show how you approach life, and explain the rationale behind your decision-making. These are vital to maintaining a strong identity, so defining and leaning into them is powerful. Values rarely undergo large changes, as doing so means a dramatic shift in your identity.

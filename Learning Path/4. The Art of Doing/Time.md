@@ -1,5 +1,0 @@
-Time is a resource that diminishes at a constant speed, though it can appear to move faster or slower based on what we're doing. Effectively organising the time in a day is critical for getting a good amount of work done.
-
-A simple and powerful method for managing this is time-boxing. This is simply setting a timer (e.g. 25 minutes) when you start something, and stopping once the timer runs out. It allows you to decide in advance how long you're going to spend, allowing much better structure and reducing the chance of long rabbit holes. It can also be motivating, as you may persevere longer on a task if there is "just 5 minutes left" on the timer.
-
-When doing focused sessions, it is necessary to take breaks. These also benefit from time-boxing, which prevents them from lasting longer than anticipated. Equally as important as the length is the activities you perform in your break. You can easily ruin your energy by eating junk food, or your motivation by doomscrolling. It's fine to do those things later in the day when you want to relax, but the definition of a break means that you should be able to get back to work afterwards.

@@ -1,1 +1,0 @@
-system for finding a learning path for new skills, preferably created by an expert, built-in repetition, milestones and tests

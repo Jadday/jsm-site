@@ -1,1 +1,0 @@
-A cool mindset is to compare to how a GPS never says "made a mistake", it instead says "recalculating route". It says that it WILL make it to the goal, it just has to design a route there.

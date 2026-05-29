@@ -1,1 +1,0 @@
-Do things like a video game protagonist. Pretend you're leon kennedy.

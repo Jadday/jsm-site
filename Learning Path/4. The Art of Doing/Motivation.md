@@ -1,5 +1,0 @@
-Motivation, unlike time and energy, is a force. It's not a resource that you spend and restore. Motivation is the drive you have to do a certain activity - how much you want and feel the need to do it, independent of time and energy.
-
-A very effective way to have the motivation for an activity is to make a habit out of it. This way, you will feel the need to do it, and will start it automatically if there are no big obstacles in the way.
-
-There are many other things that can affect motivation. Dopamine-inducing activities like games and social media can reduce the motivation to do anything else. Feeling happy in the span of a day can motivate you to try more challenging activities. Powerful quotes or visualising success can try to rally motivation when it's low. Deadlines, external or self-imposed, can provide strong motivation out of fear. The list could go on - motivation is a fragile and ever-changing thing. Many of the systems and tools of the JSM exist to optimise it.

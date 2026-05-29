@@ -1,3 +1,0 @@
-Gotta change my mindset for buying stuff. Buy it when you're gonna need it, not just because you don't have it. So only un-tick things when they run out if you actually know you'll need it again straight away.
-
-For example, most veg and meat probably doesn't need to be un-ticked immediately. Neither does yoghurt or milk/kefir if you have the other one. When you're gonna make a meal, un-tick everything for that meal.

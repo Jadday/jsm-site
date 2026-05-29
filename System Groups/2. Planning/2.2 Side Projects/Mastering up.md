@@ -1,1 +1,0 @@
-system for starting with mastering the art of showing up, then slowly increasing the time. Or is that a tool? I can't ever see this getting retired tbf

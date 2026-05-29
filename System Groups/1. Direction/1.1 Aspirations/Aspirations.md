@@ -1,3 +1,0 @@
-Aspirations are the unique hopes to achieve long-term goals. Rather than being specific, measurable goals, they are simply visions of success that provide a high-level direction for life. This direction can then be adjusted on a smaller scale over time.
-
-While personal aspirations are all equally valid, goals for life structure may have more effective solutions. The JSM nudges towards a life of optimised balance, meaning that one is both together and broken. Organised, efficient, polite and successful but also fun, unpredictable, scuffed and sociable at the right times.
