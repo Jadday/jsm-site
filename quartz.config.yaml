@@ -7,7 +7,7 @@ configuration:
   analytics:
     provider: plausible
   locale: en-GB
-  baseUrl: jadday.github.io/jsm-site
+  baseUrl: jsm.jadday.com
   ignorePatterns:
     - private
     - templates
