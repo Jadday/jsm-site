@@ -1,3 +1,7 @@
+Think our meal rotation should be 2 weeks. Include a veg traybake in there to assist dishes, and the gousto salmon curry because it's just peak
+
+/////
+
 I can see a 2 pack of lean cheap beef steaks per week being really good. We can even cook double the veg etc on the first one, and make the second one super easy. That's 2/7 meals sorted.
 
 We also want to have chicken for sure, probably at least twice (chicken 8oz, rice 1cup, broccoli 1cup is goated for a reason). And salmon, you can do the babystickley classic once a week maybe.
