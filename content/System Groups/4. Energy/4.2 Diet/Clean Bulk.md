@@ -1,0 +1,1 @@
+The idea of a clean bulk is not to get fat and then cut down to look good. The idea is to eat and train enough to gain weight as muscle, without adding too much fat in the process. So, your body fat is the thing to watch here. Weight up and body fat stable? Amazing.

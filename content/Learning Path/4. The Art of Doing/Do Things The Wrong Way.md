@@ -1,0 +1,1 @@
+Don't worry about whether your solution is perfect or not. You have to do things the wrong way for a while before you can understand the value of the right way.

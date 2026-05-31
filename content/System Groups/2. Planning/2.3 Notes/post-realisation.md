@@ -10,3 +10,7 @@ The above is trying to say:
 
 When you have a big realisation, you don't have to act on it immediately. Rest. Plan how to start it effectively later.
 
+/////
+
+Words don't make a difference, and neither do sporadic attempts. Don't do anything crazy today, just architect the infrastructure and mindset you need to make it sustainable and consistent.
+
