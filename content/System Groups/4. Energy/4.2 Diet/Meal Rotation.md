@@ -1,4 +1,4 @@
-Think our meal rotation should be 2 weeks. Include a veg traybake in there to assist dishes, and the gousto salmon curry because it's just peak
+Think our meal rotation should be 2 weeks. Include a veg traybake in there to assist dishes, and the gousto salmon curry because it's just peak. Also, each week could do a quantity of chicken in bulk, like 1kg for 4 portions? Bone broth ramen is also amazing
 
 /////
 

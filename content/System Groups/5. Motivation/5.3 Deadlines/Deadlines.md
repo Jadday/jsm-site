@@ -17,3 +17,7 @@ It's important to note that this shouldn't be used for everything. Where possibl
 One bypass that may occur is simply skipping the punishment when the time comes, since you're the only one that is enforcing it. However, if you mention the activity to others, you introduce social pressure that will hold you to keeping your word.
 
 Ideally, the punishment should never happen. But life is spontaneous, and getting accidentally locked into a punishment like this is something that should be avoided. To do this, an Exit Condition can be used, which briefly defines the scenario that allows you to bypass the punishment, such as an unpredictable event or emergency.
+
+/////
+
+Manually create deadlines for yourself, short-term ones. Don't get too granular with these, as trying to micro-manage yourself will only end poorly. Instead, it can be things that are not particularly hard to do, and should never really be failed. But you'd be surprised how badly you can do on a bad day. Having a deadline with an actual punishment that says "do any amount of time of art" will probably get you doing it regardless.
