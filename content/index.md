@@ -5,7 +5,7 @@ Welcome to the JSM (Jadday System Manual) digital garden.
 
 ## Start here
 
-- [[Learning Path/1. JSM Purpose/JSM Purpose|JSM Purpose]]
+- [[JSM Purpose|JSM Purpose]]
 - [[Time|Time]]
 - [[Systems|Systems]]
 - [[System Groups/1. Direction/1.1 Aspirations/Aspirations|Aspirations]]

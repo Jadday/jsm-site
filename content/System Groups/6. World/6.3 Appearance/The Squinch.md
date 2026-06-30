@@ -1,0 +1,1 @@
+https://peterhurley.com/blog/squinch-single-easiest-tip-looking-confident-photos

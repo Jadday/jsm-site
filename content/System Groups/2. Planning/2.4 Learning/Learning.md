@@ -9,3 +9,5 @@ I can think of three main options:
 3. Use some sort of hybrid approach. Find one or two authoritative resources on the topic, and practice what they say. Then, decide what aspect is missing/weak that you want to learn next. Look for more specific resources, practice what they say. And so on.
 
 /////
+
+Use a hybrid learning approach (initial sources, practice them, find weaknesses, more sources, repeat) to stop learning from being too boring (by reducing research) or too difficult (by only practicing things I've been shown)

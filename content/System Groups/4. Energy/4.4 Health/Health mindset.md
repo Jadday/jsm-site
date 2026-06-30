@@ -1,0 +1,1 @@
+If you have a runny nose, you could use a nasal spray. That's a temporary solution to lots of different problems. But the thing that is causing your runny nose may also be causing other issues you don't know about. If you can actually find the root cause of the problem and understand it, you can end up solving many more things at once.

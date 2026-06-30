@@ -1,1 +1,0 @@
-Constraints feel restrictive before they feel freeing.
